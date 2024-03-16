@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently working on Cybersecurity.<br>I'm learning networking. <br>Ask me anything about Cybersecurity and Networking. <br>
+🔐I'm currently working on Cybersecurity.<br>💻I'm learning Networking. <br>💬Ask me anything about Cybersecurity and Networking. <br>
 
 
 ## 🌐 Socials:
